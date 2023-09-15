@@ -1,0 +1,10 @@
+Thanks for playing on DoharCraft! Before you start your journey, we'd like you to read through the guidelines and expectations we have for you while using our services. These rules help us ensure that all players can enjoy a positive and fun experience. Failure to adhere to these regulations will result in severe consequences.
+|| Be careful with sharing access to your device or password. Players sharing the same device will be treated as alt accounts. Punishments will automatically apply to all these accounts. We may also consider your IP address when enforcing punishments in the future.
+## 1. Respect yourself and others
+> Do not swear, curse, or hurl abuse at another player. Respect other players and treat others as you would like to be treated. Bullying is not tolerated at DoharCraft, and we will prosecute offenders accordingly.
+## 2. Keep your content appropriate
+> Do not post inappropriate content. An excellent way to check if your content is appropriate is to ask yourself—is this something that I could show to my parents? This definition also includes material that others could potentially find offensive. Racism, sexism or any other form of discrimination is strictly prohibited.
+## 3. Be considerate while chatting
+> Think about others and what they will see in the chat when you post a message. Do not spam; repeatedly use the exact word/phrase or excessive caps in your messages to attract attention or annoy others. Respect the fact that a chat filter is in place for a reason. Profanity is allowed to a certain degree. You must censor it appropriately and not direct it towards another player.
+## 4. Listen to and respect our staff members
+> Our staff members are here to ensure that everyone is having a great time. When they give you instructions, we expect you to follow what they say. Keep in mind that our staff team is comprised of volunteers. They are here to help and to keep the server safe—but they are not your servants. When asking questions or engaging in conversation with them, do so in a polite manner.
